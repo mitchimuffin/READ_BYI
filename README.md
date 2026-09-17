@@ -8,8 +8,10 @@ do.not.interact AT ALL if yur an "islamphobe" or racist towards arabs (in any wa
     <p align="center">
 if yu suppourt israel hide me pls<3.
   <p align="center">
-if yur gna hate on me js coz of my RELIGION then i highly recomend therapy!
+if yur gna hate on me js coz of my RELIGION or ETHNICITY then i highly recomend therapy!
 <p align="center">
-b4 yu hate on islam, or any religion wutsoevr pls research so at least yu can say smthn accurate 😭🙏🙏. 
+b4 yu hate on islam & arabs, or any religion / ethnicity wutsoevr pls research so at least yu can say smthn accurate 😭🙏🙏. 
   <p align="center">
 i block/hide freely so dont expect me 2 reply ^^ !!!! 
+<p align="center">
+<img src=https://files.catbox.moe/oubt2x.png height=100>
