@@ -11,5 +11,3 @@ oh also, im arab :3 !!!!! sooo stupid jokes or allegations shall b kept in yur p
 b4 yu hate on islam, or any religion wutsoevr pls research so at least yu can say smthn accurate 😭🙏🙏. 
   <p align="center">
 i block/hide freely so dont expect me 2 reply ^^ !!!! 
-<p align="center">
-  ──── ୨୧ ────
