@@ -17,4 +17,4 @@ b4 yu hate on islam & arabs, or any religion / ethnicity wutsoevr pls research s
   <p align="center">
 i block/hide freely so dont expect me 2 reply ^^ !!!! 
 <p align="center">
-<img src=https://files.catbox.moe/oubt2x.png height=100>
+<img src=https://files.catbox.moe/oubt2x.png height=250 width=900>
