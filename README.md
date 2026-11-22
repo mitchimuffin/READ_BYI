@@ -1,20 +1,29 @@
 <p align="center">
-  <img src=https://files.catbox.moe/xfjcjg.png height=250>
+  <img src=https://files.catbox.moe/l8tv6v.png height=250>
     <p align="center">
   ──── ୨୧ ────
   
 <p align="center">
-do.not.interact AT ALL if yur an "islamphobe" or racist towards arabs (in any way or form). 
-  YES im muslim & idgaf wut yu think or say abt ths. DO NOT come at me coz ion support lgbtq , NO im not " Homophobic" , im MUSLIM. RELIGIOUS. got it? & if yur gna make zi*onist jokes pls touch grass. 
-  yur not funny at all , js pathetic ( & weird) tbh. 
-  
-  <p align="center">
-if yu suppourt israel / trump hide me pls<3.
-  <p align="center">
-if yur gna hate on me js coz of my RELIGION or ETHNICITY then i highly recomend therapy!
-<p align="center">
-b4 yu hate on islam & arabs , or any religion / ethnicity wutsoevr pls research so at least yu can say smthn accurate 😭🙏.            
-  <p align="center">
-i block / hide freely so dont expect me 2 reply ^^ !!!! 
+dni at all of you're an "islamphobic" or racist towards arabs. 
+don't get all fussy abt how i don't support LGBTQ , I'm muslim.
+that doesn't mean i don't support your rights or what you need , i just
+don't associate with those stuff & that's abt it. 
+
+i made mistakes in the past and i was mean towards people of the community , but now 
+i realized my mistakes and i plan on accepting our differences. 
+
+the only thing i need to clarify is that I won't accept friendships within the community ,
+but I'll still treat you as a human being. 
+
+
+i got hate myself from the community , but ik not everyone in it is like this. 
+i just hope you understand me like how i try to understand you.
+
+
+like how it's your life & your choices , this is mine. 
+if you want me to respect you , give me respect back.
+
+ty<3.
+
 <p align="center">
 <img src=https://files.catbox.moe/oubt2x.png height=250 width=900>
