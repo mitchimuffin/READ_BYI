@@ -9,11 +9,14 @@ don't get all fussy abt how i don't support LGBTQ , I'm muslim.
 that doesn't mean i don't support your rights or what you need , i just
 don't associate with those stuff & that's abt it. 
 <p align="center">
-i made mistakes in the past and i was mean towards people of the community , but now 
-i realized my mistakes and i plan on accepting our differences. 
+hating on me just because im muslim & don't support the community is honestly stupid , 
+  you can live your life the way you want it's not my problem.
+  
+  <p align="center">
+  i won't attack you unless you attack me first (obv). so if i act harsh towards you , just know you've made a mistake.
 <p align="center">
-the only thing i need to clarify is that I won't accept friendships within the community (non muslims overall) ,
-but I'll still treat you as a human being. 
+also i need to clarify that I won't accept friendships within the community (non muslims overall) ,
+but I'll still treat you with basic human empathy & as a human being (hopefully you do too.)
 
 <p align="center">
 i got hate myself from the community , but ik not everyone in it is like this. 
